@@ -1,0 +1,3 @@
+# alsoaguy.github.io
+
+DUDE! ITS A SPINNING SQUARE WITH TEXT! LAUGH!
